@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and Cybersecurity.
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on nothing :).
-- 📫 How to reach me Discord 
+- 📫 How to reach me? On Discord! 𝕙𝕦𝕞𝕒𝕟 (𝕠𝕣 𝕟𝕠𝕥)#9974 
 - Nice to meet you!
 
 <!---
